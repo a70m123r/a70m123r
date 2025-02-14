@@ -14,4 +14,4 @@ Interactive experiences build with Bodymovin Lottie -  After Effects, enriched v
 
 - 📫 How to reach me ...
 
-a70m123r@hotmail.com  / skype
+look for a sign pavpav.pav
